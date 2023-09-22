@@ -32,8 +32,6 @@ Divirta-se!
 
 ## Follow me! Siga-me! :grin:
 
-Instagram [@jeferson.lucas](https://instagram.com/jeferson.luckas/)
+Instagram [@lukscabral](https://www.instagram.com/lukscabral/)
 
-Twitter [@JefersonLuckas](https://twitter.com/JefersonLuckas)
-
-LinkedIn [Jeferson Lucas](https://www.linkedin.com/in/jeferson-lucas-08285a182/)
+LinkedIn [Lucas Paulino Cabral](https://br.linkedin.com/in/lukscabral)
